@@ -1,0 +1,4 @@
+- 👋 Oi, eu me chamo @tailanacaroline
+- 👀 Meus interesses são ficar melhor em tecnologia
+- 🌱 Atualmente estou aprendendo programação
+- Eu sou estudante 
